@@ -1,8 +1,8 @@
-大悲咒
+__大悲咒__
 ======
 
 ![alt text](https://i.ytimg.com/vi/BadJggTIUBI/mqdefault.jpg)
-* ___Chinese Singer: Gong Yue 龚玥___
+* _<ins>Chinese Singer: Gong Yue 龚玥</ins>_
 
 na me hē luó dá nà duō luó yè yē
 

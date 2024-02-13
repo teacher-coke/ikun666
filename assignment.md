@@ -1,3 +1,9 @@
+大悲咒
+======
+
+![alt text](https://i.ytimg.com/vi/BadJggTIUBI/mqdefault.jpg)
+* ___Chinese Singer: Gong Yue 龚玥___
+
 na me hē luó dá nà duō luó yè yē
 
 南 无 喝 罗  怛 那 哆  罗  夜 耶
@@ -597,3 +603,5 @@ màn duō luó
 bá tuó yē suō pó hē
 
 跋 陀  耶 娑  婆 诃
+
+[I'm a link for the lyrics of the song](https://www.echinesesong.com/da-bei-zhou-%E5%A4%A7%E6%82%B2%E5%92%92-great-compassion-mantra-lyrics-%E6%AD%8C%E8%A9%9E-with-pinyin-by-gong-yue-%E9%BE%9A%E7%8E%A5/)
